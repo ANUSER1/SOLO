@@ -36,7 +36,12 @@ Click WA logo to Join Support Group 👇
 [![Deploy](https://www.linkpicture.com/q/heroku.jpg)](https://heroku.com/deploy?template=https://github.com/ANUSER1/SOLO.git)
      
 
-𝐀𝐍𝐎𝐓𝐇𝐄𝐑 𝐆𝐈𝐓 𝐇𝐔𝐁 𝐋𝐈𝐍𝐊 :
+
 
 [![Run on Repl.it](https://www.linkpicture.com/q/Untitled-3_10.jpg)](https://replit.com/@ANUSER1/ACE-V1#index.js)
 
+
+
+
+
+꧁𓂸❣𝐀𝐍𝐎𝐓𝐇𝐄𝐑 𝐆𝐈𝐓 𝐇𝐔𝐁 𝐋𝐈𝐍𝐊 ꧂𓂸❣︎   https://github.com/ANUSER1/ACE-V1
